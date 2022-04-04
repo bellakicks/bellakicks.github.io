@@ -1,1 +1,1 @@
-#Welcome to Masquerade Mansion
+#Welcome to the Masquerade Mansion NFT collection
